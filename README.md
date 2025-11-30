@@ -45,5 +45,5 @@ I completed a long-term **Sales and Accounts Internship**, gaining hands-on expe
 ## 📫 Contact
 **Rekha Chowdary Kommineni**  
 - **Phone:** 7901266761  
-- **Email:** rekhachowdarykommineni@gmail.com  
+- **Email:** rekha.kchowdary@gmail.com   
 - **Location:** Mangalam, Tirupati – 517507
